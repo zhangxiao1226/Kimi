@@ -46,3 +46,12 @@
 ```
 
 > 小小志在双胞胎弟弟身边，举手投足尽显大哥哥的温暖。
+
+私心再放两张大ki哥和他的两只小弟弟的皂片
+
+![alt text](http://ww1.sinaimg.cn/large/5fe0e4fbjw1f4w4ebk61cj20qo0vz0ys.jpg)
+
+![alt text](http://ww4.sinaimg.cn/mw1024/5fe0e4fbjw1f1e0m9k9ikj20qo0u5ag5.jpg)
+
+![alt text](http://ww1.sinaimg.cn/mw1024/5fe0e4fbjw1eypzvmcynvj20hs0c8jtj.jpg)
+
