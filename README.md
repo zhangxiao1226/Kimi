@@ -5,7 +5,7 @@
 
 ![alt text](http://ss14.sinaimg.cn/large/5fe0e4fb492a02d352f4d&690)
 
-下面开我kimi的简介
+下面是我kimi的简介
 
 **1. 基本信息**
 
